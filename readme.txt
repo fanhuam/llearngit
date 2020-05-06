@@ -9,3 +9,7 @@ Git has a mutable index called stage.
 Git tracks changes of files.of files
 
 my stupid boss
+
+
+
+5.6∑÷÷ß∏¥œ∞
